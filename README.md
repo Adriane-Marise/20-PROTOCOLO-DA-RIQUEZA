@@ -31,5 +31,6 @@ a questao imporatnte aqui eh se voce deseja prosperar,pense grande, voe alto, in
 
 se coloque a servico e construa seu legado para a sociedade. Assim, voce  sera lembrada nao apenas pela trajetoria patrimonial brilhante mas, tambem pela pessoa prospera  e servil que transformou vidas.
 
+Amanha voce recebera o ultimo PROTOCOLO DA RIQUEZA DO DESAFIO MULHER PROSPERA 21 DIAS! Sera o fechamento da sua jornada para sua prosperidade. Mantenha-se integra! e para finalizar, quero que voce observe alguma mulher de expoente com quem voce se identifica e analise de ela prosperou apenas para si propria ou se transbordou para a sociedade. Observe este comportamento etico e aplique nas acoes do seu dia a dia. Te encontro no eu futuro de sucesso!
 
 
